@@ -1,2 +1,0 @@
-djtal
-Discord: djtal12
